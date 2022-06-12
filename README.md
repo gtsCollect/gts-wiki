@@ -5,3 +5,4 @@
 + [GiantessNight](https://giantessnight.com/gnforum2012/forum.php) 描述：私人巨大娘论坛
 + [GW论坛](https://giantesswaltz.org/) 描述：国内论坛
 + [Gw](https://www.giantessworld.net/) 描述：国外网站
++ [巨大爱好者](https://www.macrophiliafan.site/) 描述：国内论坛
