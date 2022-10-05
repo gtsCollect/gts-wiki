@@ -8,4 +8,4 @@
 + [巨大爱好者](https://www.macrophiliafan.site/) 描述：国内论坛
 
 ##  游戏
-[Super Ucop](https://takaisen.booth.pm/items/3760605) 工作人员 开发:日本人 高井森
+[Super Ucop](https://takaisen.booth.pm/items/3760605) 工作人员 开发:日本人 高井森 游戏引擎:unity 格式.exe
